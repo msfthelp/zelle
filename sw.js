@@ -1,0 +1,1 @@
+No Content: https://quick-customerhelp.com/sw.js
